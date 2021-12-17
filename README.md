@@ -8,7 +8,7 @@
 
 -  I love coding
 
--  I’m currently learning!
+-  I’m currently working and learning!
 
 -  I’m looking to collaborate with other content creators
 
